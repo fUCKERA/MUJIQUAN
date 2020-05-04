@@ -1,1 +1,0 @@
-![image](https://github.com/fUCKERA/MUJIQUAN/blob/master/BMV.jpg)
